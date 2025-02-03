@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abhay-raj-srivastava
-- 👀 I’m interested in coding & sports
+- 👀 I’m interested in sleeping and takin nap during class
 - 🌱 I’m currently learning Java Development DevOps
 - 💞️ I’m looking to collaborate on learning new skills
 - 📫 How to reach me  gmail-abhayraj7102005@gmail.com
